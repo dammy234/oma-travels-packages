@@ -21,3 +21,15 @@ Prepared October 22, 2026. All budgets are in Canadian dollars.
 - Check the linked official travel advisories and entry requirements again before departure.
 
 This is a planning proposal, not a booking confirmation or a guarantee of availability. Photo and source credits appear in the PDF; third-party materials remain the property of their respective rights holders.
+
+## Dominican Family Getaway: December 2026
+
+[Read the 17-page comparison](oma-travels-packages-dominican-family-getaway.pdf)
+
+[Download the PDF](https://github.com/dammy234/oma-travels-packages/raw/refs/heads/main/oma-travels-packages-dominican-family-getaway.pdf)
+
+Vista Sol Punta Cana versus Lifestyle Tropical Beach Resort & Spa in Puerto Plata, departing Winnipeg for one adult and one child aged 8. Prepared October 23, 2026. Includes promotional photos, family facilities, review summaries, budgets, flight-display caveats, sample itineraries, weather, entry and safety checklists, booking steps and linked sources.
+
+**Important price update:** The original CAD $2,115/$1,835 adult advertisements are not family totals. A Sunwing family search returned an estimated **CAD $4,310** for Lifestyle, December 22-29, including advertised taxes, flights, hotel and transfers. This is not a checkout-guaranteed quote. Vista Sol family pricing remains unconfirmed. Neither option is demonstrated within a CAD $2,000 full-trip ceiling. No booking has been made.
+
+This is an anonymized planning comparison, not a confirmed itinerary. Do not upload traveller identity documents, payment details or booking codes. The original Cancun proposal remains unchanged.
